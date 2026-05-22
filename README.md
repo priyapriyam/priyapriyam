@@ -1,4 +1,4 @@
-## Priya Priyam
+## Priya Mishra
 
 A focused and detail-driven technologist building modern digital experiences with a strong foundation in software development, design, and collaboration.
 
